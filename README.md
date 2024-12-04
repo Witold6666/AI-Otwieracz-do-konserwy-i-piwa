@@ -1,0 +1,1 @@
+# AI-Otwieracz-do-konserwy-i-piwa
